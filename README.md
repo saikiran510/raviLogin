@@ -17,12 +17,3 @@ c b dbw dnb cbd bd b sajb ddsmn dwmnmn
  en ndv dn vvdbfcbcv 
 111111111111
 222222222222
-fmerfjkelrjefjeefewfe
-eferjglerljergmerlger
-ndvklgndfklvd
-4;m,f;lened
-dvm lfgd
-im from hyd
-hello jhao
-sneha thakur
-radhuu 
